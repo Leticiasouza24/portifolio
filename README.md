@@ -2,11 +2,11 @@ Nome completo: Leticia Souza Neves
 
 
 📘 SOBRE MIM
-Sou psicólogoa, com interesse e experiência nas áreas de. Tenho como missão promover o bem-estar emocional, desenvolvimento pessoal e relações humanas mais saudáveis. Trabalho com empatia, escuta ativa e base científica sólida para oferecer um atendimento ético e humanizado.
+Sou psicólogoa, tenho como missão promover o bem-estar emocional, desenvolvimento pessoal e relações humanas mais saudáveis. Trabalho com empatia, escuta ativa e base científica sólida para oferecer um atendimento ético e humanizado.
 
 🎓 FORMAÇÃO ACADÊMICA
 Bacharelado em Psicologia
-Ano de início – Ano de conclusão
+Ano de início – 2025 de conclusão 2031
 
 💼 EXPERIÊNCIA PROFISSIONAL
 Estágio em Psicologia Clínica
